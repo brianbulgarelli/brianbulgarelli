@@ -16,4 +16,4 @@ I'm really passionate about Computer Science and a bunch of other stuff! Feel fr
 
 - How I got my nickname & why people call me Brian Bulgogi
 
-You can find me on [LinkedIn](https://www.linkedin.com/in/brian-bulgarelli/), send me an [email](brian.bulgarelli2001@gmail.com) or most social platforms @brianbulgogi.
+You can find me on [LinkedIn](https://www.linkedin.com/in/brian-bulgarelli/), send me an [email](brian.bulgarelli2001@gmail.com) or find me on most social platforms @brianbulgogi.
